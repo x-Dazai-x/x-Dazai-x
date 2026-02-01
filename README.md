@@ -1,5 +1,5 @@
 #  Hey !~:
-🔰 I’m preparing for CSE as my major, drawn to how complex systems really work<br> Open to collaborating on web applications to study and apply system patterns<br> I’m looking for help with building dynamically  enabled web applications<br> Learning full-stack development, layer by layer  <br> Ask me about web development — Always a  pleasure to help where I can <br> Fun fact: Understanding, anticipating, and adapting to systems -is how it works for me<br><br>
+🎙️ I’m preparing for CSE as my major, drawn to how complex systems really work<br> 🎙️Open to collaborating on web applications to study and apply system patterns<br> 🎙️I’m looking for help with building dynamically  enabled web applications<br>🎙️ Learning full-stack development, layer by layer  <br> 🗨️ Ask me about web development — Always a  pleasure to help where I can <br> ✨ Fun fact: Understanding, anticipating, and adapting to systems -is how it works for me<br><br>
 
 
 ## 🌐 Socials:
